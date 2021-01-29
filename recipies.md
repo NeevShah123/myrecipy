@@ -1,0 +1,1 @@
+First, put a cheese slice between two breads, and put some vegetables. Then, put some sauce, and the burger is ready.
